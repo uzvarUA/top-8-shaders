@@ -7,4 +7,25 @@
 6. [Newb X Unleashed](#newb-x-unleashed)
 7. [NR4](#nr4)
 8. [NEWB X NOVA](#newb-x-nova) <br>
+> [!NOTE]
+> Шейдери пропали. <br>
+> Minecraft Патч пропали <br>
+# Newb X Ale
+![](IMG/newb-x-ale-renewed---support-renderdragon-compatible-with-12162_12.png) <br>
+![](IMG/newb-x-ale-renewed---support-renderdragon-compatible-with-12162_13.png) <br>
+![](IMG/newb-x-ale-renewed---support-renderdragon-compatible-with-12162_5.png) <br>
 
+# Newb X Dragon
+*Незабаром*
+# Prizma Deferred
+*Незабаром*
+# Newb X Blissful HDR
+*Незабаром*
+# Newb X Stars
+*Незабаром*
+# Newb X Unleashed
+*Незабаром*
+# NR4
+*Незабаром*
+# Newb X Nova
+*незабаром*
